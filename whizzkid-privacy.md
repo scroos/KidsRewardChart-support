@@ -1,4 +1,4 @@
-# Privacy Policy for WhizzKid
+# Privacy Policy for Kids Reward Chart
 
 **Last updated:** April 2026
 
